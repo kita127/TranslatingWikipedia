@@ -12,11 +12,11 @@ Television Personalities は 1977 年にロンドンのシンガーソングラ�
 かつての親友 Ed Ball(初期メンバー, 後に簡単に述べる), Jowe Head(元 Swell Maps), 1983-94 年まで Jeffrey Bloom
 らが含まれる.
 
-Dan と Jowe と Jeff の3人組が多くの人々からバンドの決定的メンバーと考えられている.
+Dan と Jowe と Jeff の3人組が多くの人々からバンドの決定的メンバーであると考えられている.
 多作ではあるが, Television Personalities は彼らの初期シングルである "Part Time Punks", 2枚目と4枚目のアルバム,
 同じく, 絶賛されている Privilege と Closer to God の LP が最もよく知られている.
 
-しかしながら, 比較的商業的には成功していないが
+比較的商業的には成功していないが, しかし,
 (彼らの 3rd アルバムは皮肉にも「ビートルズを超えたかもしれない」だった), Television Personalities は批評家から
 高い評価を得ており, 広く影響を与えている, とりわけ C86 世代や 1990 年代に Creation Records にサインしたバンドや
 Pavement や  MGMT といったアメリカのアーティストへ.
@@ -27,12 +27,33 @@ Treacy の型破りだがドライで機知に富みそして文化的な歌詞�
 2006 年に音楽評論家の Cam Lindsay は「Treacy は過去30年間において最も奇妙で, 聴きなじみのないしかし
 見事なポップソングをいくつか録音した」と述べた.
 
-## Career
+## キャリア
+### 結成
+Treacy は Sex Pistols と Jonathan Richman を聞いたのち触発されて Television Personalities を結成した.
+
+かつてなく型破りな Treacy は自分自身はあまり音楽に興味がなく, バンドもリハーサルを滅多にしなかったと語る.
+
+Treacy はライブ用にセットリストを準備せず, 彼らの足元にバンドをキープすることを好みました(？）
+
+Head は "自分たちは 1983 年の後半に一度リハーサルをした. その他には 5 年後に一度した,そんなものだった"という
+ことを覚えている.
+
+### Mute records
+
+### Later years and revival
 
 ## Influence
 Television Personalities は広く影響を与え, 結成当初から絶賛されていた.
+
 バンドを形作る上での影響として彼らを挙げるバンドには Jesus and Mary Chain,
 Half Man Half Biscuit, The Pastels, Beat Happening, Pavement, MGMT("Song for Dan Treacy"を録音した)
 などが含まれる.
 
 ## Discography
+メイン記事: Television Personalities discography(link)
+
+Treacy は Television Personalities の歌詞やアルバムアートワーク, レコードアートワークなどの
+至る所にポピュラーカルチャーの引用やジョークを散りばめることで知られている.
+
+最も引用しているのは(主にイギリスの)カルト映画や, 1960 年代の文化や忘れ去られた, あるいは
+正当に評価されていないミュージシャンや有名人などである.
