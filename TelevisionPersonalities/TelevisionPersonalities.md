@@ -26,3 +26,13 @@ Treacy の型破りだがドライで機知に富みそして文化的な歌詞�
 
 2006 年に音楽評論家の Cam Lindsay は「Treacy は過去30年間において最も奇妙で, 聴きなじみのないしかし
 見事なポップソングをいくつか録音した」と述べた.
+
+## Career
+
+## Influence
+Television Personalities は広く影響を与え, 結成当初から絶賛されていた.
+バンドを形作る上での影響として彼らを挙げるバンドには Jesus and Mary Chain,
+Half Man Half Biscuit, The Pastels, Beat Happening, Pavement, MGMT("Song for Dan Treacy"を録音した)
+などが含まれる.
+
+## Discography
