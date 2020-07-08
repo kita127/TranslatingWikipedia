@@ -49,10 +49,21 @@ Nicholas Parsons, Russell Harty, Bruce Forsyth, Hughie Green のようなテレ�
 そのトラックは BBC の John Peel にピックアップされた.
 Treacy は "Peel は気に入ってくれた, しかしお母さんとお金の返済について口論となった" と語った.
 
-
+TODO:
+The song title and resulting media attention brought the band to the notice of the music press and rock establishment royalty they were parodying. Treacy said: "Jimmy Page came in one day when I was reading an interview I'd done, and I told him I had a record out. So then, he walks me upstairs to a wardrobe brimming with guitars, hands me one and five minutes later, I was jamming with Jimmy Page. He was good, but he weren't as good as me."[3] Later the promotion of the "14th Floor" single was supported by Joe Strummer, and they became a foundational band for Alan McGee when he began to form Creation Records.
 
 
 ### Mute records
+
+1980 年の半ば, Television Personalities はベースに Joe Foster, ドラムに Mark Sheppard(Empire として知られる)
+を起用した後, ライブデビューを果たした.
+このラインナップは短い期間で終わった. 伝えられているところによれば Foster と Sheppard の意見の違いによるもの
+だと言われており Joe の脱退へと繋がった.
+これに先立ち, Dan と Mark は Joe's のソロプロジェクト the Missing Scientists を手伝った. また, これには
+Mute Records のトップである Daniel Miller も参加していた.
+
+Television Personalities の 1st アルバム "...And Don't The Kids Just Love It" は 1981 年にリリースされた.
+これは彼らの後のキャリアの土台を決めた. 1960 年代の若者文化への執念と強く結びついたネオサイケデリアという.
 
 ### Later years and revival
 
