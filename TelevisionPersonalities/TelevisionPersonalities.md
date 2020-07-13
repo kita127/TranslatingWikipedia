@@ -1,4 +1,4 @@
-# TelevisionPersonalities
+# Television Personalities
 * Wikipedia Link
     * https://en.wikipedia.org/wiki/Television_Personalities
 
@@ -50,7 +50,14 @@ Nicholas Parsons, Russell Harty, Bruce Forsyth, Hughie Green のようなテレ�
 Treacy は "Peel は気に入ってくれた, しかしお母さんとお金の返済について口論となった" と語った.
 
 TODO:
-The song title and resulting media attention brought the band to the notice of the music press and rock establishment royalty they were parodying. Treacy said: "Jimmy Page came in one day when I was reading an interview I'd done, and I told him I had a record out. So then, he walks me upstairs to a wardrobe brimming with guitars, hands me one and five minutes later, I was jamming with Jimmy Page. He was good, but he weren't as good as me."[3] Later the promotion of the "14th Floor" single was supported by Joe Strummer, and they became a foundational band for Alan McGee when he began to form Creation Records.
+The song title and resulting media attention brought the band to the notice of
+the music press and rock establishment royalty they were parodying.
+Treacy said: "Jimmy Page came in one day when I was reading an interview I'd done,
+and I told him I had a record out. So then, he walks me upstairs to a wardrobe brimming with guitars,
+hands me one and five minutes later,
+I was jamming with Jimmy Page. He was good,
+but he weren't as good as me."[3] Later the promotion of the "14th Floor" single was supported
+by Joe Strummer, and they became a foundational band for Alan McGee when he began to form Creation Records.
 
 
 ### Mute records
@@ -63,7 +70,16 @@ The song title and resulting media attention brought the band to the notice of t
 Mute Records のトップである Daniel Miller も参加していた.
 
 Television Personalities の 1st アルバム "...And Don't The Kids Just Love It" は 1981 年にリリースされた.
-これは彼らの後のキャリアの土台を決めた. 1960 年代の若者文化への執念と強く結びついたネオサイケデリアという.
+これは彼らの後のキャリアの土台を決めた, 1960 年代の若者文化への執着と強く結びついたネオサイケデリアというキャリアの.
+彼らの 2nd アルバム Mummy Your Not Watching Me はサイケデリックの影響が増したことをより示した.
+彼らの They Could Have Been Bigger Than The Beatles と名付けられた 3rd アルバム  は Treacy のユーモアセンスを示した.
+TVPs は UK で商業的な成功を収めることはことはなかった. しかし, 彼らのアルバムはドイツやスウェーデンやオランダでは
+立派に売れた. 最初の 3 枚のアルバムは Treacy と学友の Ed Ball をフィーチャーしていた. Ball は 1982 年に
+The Times を結成するためバンドを去ったが, 2004 年に再加入した.
+批評家の Ira Robbins によると, 1984 年のアルバム The Painted Word によって TVPs は忘れられないほど美しく
+遠慮がちでサイケデリック漂う, とても控えめなロックに流れ着いた. それはまるで最も繊細な瞬間の
+Velvet Underground のようだと.
+
 
 ### Later years and revival
 
