@@ -81,7 +81,20 @@ The Times を結成するためバンドを去ったが, 2004 年に再加入し
 Velvet Underground のようだと.
 
 
-### Later years and revival
+### 後年とリバイバル
+
+1983 年バンドは Dan とキーボードの Dave Musker, ギターの Joe Foster, ベースの Mark Flunder から成っていた.
+Jeffrey Bloom がドラムとして Alan McGee の Livin room club のギグで加わり, そして直後に Mark Flunder の後任として
+ベースの Stephen Bird, a.k.a Jowe Head が加入した.
+このラインナップはバンドの初のヨーロッパツアーに行ったがほどなくして Joe と Dace が去った.
+この脱退によりバンドはギター, ベース, ドラムの3人編成となり, Dan, Jowe そして Jeff はその後14年間
+Television Personalities を続けた.
+バンドはロンドンのギグシーンの常連でありまた, UK, ヨーロッパ, アメリカそして日本などのツアーを何度か行った.
+The Chocolate Art や Camping ion France などのライブアルバムはこの期間に録音された.
+
+★★★★★★
+つづき
+★★★★★★
 
 ## Influence
 Television Personalities は広く影響を与え, 結成当初から絶賛されていた.
